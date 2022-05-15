@@ -20,6 +20,7 @@ Forum linkini ve market linkini aşağıya yazıyorum.
 Çünkü adları kötüye çıkarsa hemen isim ve link değiştiriyorlar o yüzden bu durum da dikkat edin.
 
 Alphabay TR'nin linki: http://uvyybhmbvuhxjsaifaskznpll6h4jpaqmqaezfvjbwlmey7v6svzntid.onion
+
 Dark Turkish Web forumunun linki: http://deepxljj2ik7yzpum23zd3gwyq5iryjnezsle7bsvcfovnhqyrk4vxid.onion/
 
 Bunlardan uzun durun arkadaşlar, durduk yere paranızdan dolmayın.
