@@ -25,3 +25,5 @@ Dark Turkish Web forumunun linki: http://deepxljj2ik7yzpum23zd3gwyq5iryjnezsle7b
 
 Bunlardan uzun durun arkadaşlar, durduk yere paranızdan dolmayın.
 
+
+Son güncelleme tarihi: 15 Mayıs 2022
